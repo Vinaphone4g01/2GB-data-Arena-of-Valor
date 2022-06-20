@@ -1,2 +1,4 @@
 # 2GB-data-Arena-of-Valor
 2Gb data MobiFone chơi Liên Quân được bao lâu?
+<p style="text-align: justify;"><a href="https://3gmobifones.com/2gb-mobifone-choi-lien-quan-bao-lau" target="_blank" rel="noopener"><strong>Tốc độ mạng bao nhiêu để chơi Liên Quân</strong></a> thả ga mà không lo bị gián đoạn đó là điều mà mỗi game thủ đều muốn biết. Thông thường chơi game Liên Quân tốn khá nhiều dung lượng bởi có chứa hình ảnh, âm thanh. Do đó nếu đăng ký mạng 4G để sử dụng, người dùng cần quản lý tốt dung lượng để không bị gián đoạn khi chơi.</p>
+<p style="text-align: justify;">Vậy 1 trận liên quân tốn bao nhiêu GB MobiFone? Tốc độ bao nhiêu là đủ? Nếu bạn cũng đang thắc mắc đến vấn đề này thì hãy nhanh chóng theo dõi trong nội dung bài viết dưới đây của <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a>.</p>
